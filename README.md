@@ -6,4 +6,4 @@
 ### Você pode entrar em contato comigo 📫
 - juuhvenus.03@gmail.com
 - @mo0n_aph 
-
+https://tenor.com/pt-BR/view/cute-love-yes-gif-21853971
